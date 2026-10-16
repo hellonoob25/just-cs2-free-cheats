@@ -1,2 +1,2 @@
 # just-cs2-free-cheats
-found some free cheats
+collection of free HvH and Legit CS2 cheats.
